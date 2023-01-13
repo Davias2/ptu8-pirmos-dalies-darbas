@@ -1,0 +1,1 @@
+# ptu8-pirmos-dalies-darbas
